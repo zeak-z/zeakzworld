@@ -1,2 +1,0 @@
-# zeakzworld
-zeakzworldmods
